@@ -1,0 +1,26 @@
+---
+title: "Happiness and You #AtoZChallenge"
+date: "2017-04-09"
+categories: 
+  - "atozchallenge"
+  - "milestones"
+  - "musings"
+  - "random"
+coverImage: "Ho-e1491755266414.png"
+---
+
+Dear Son
+
+Do you remember the time when you were your happiest self? Was it the day you got the news of getting accepted at one of the universities of your choice? Or was it last week when you went out partying with your friends? And, when would be the time that you think you would be your ultimate happiest? Will it be on the last day of your board exams? Or will it be when you finally land with the career or girl of your dreams? No matter what your answers are today, if I ask you the same questions a few months later, the answers will probably change from what they are today. The reason being, we often see happiness as something dipped either in nostalgia of the past or the fabric of dreams we weave for our future.
+
+I reckon most people out there will ever answer this question with, 'I'm happy today.' That's because we treat happiness as something elusive which flits by even before we savor it fully or something that waits for us at the end of the dark tunnel we imagine to be currently in. What we fail to recognise is that we let yesterday pass by without realising that it was perhaps the happiest day of our life and we wait for the coming day hoping that it would be the happiest day tomorrow. The yesterday that we let go was actually a today in the past that we missed savoring to the fullest. The tomorrow that will come will also become a today and move forward as yesterday. No matter how beautiful tomorrow seems, today is what we have in reach till we get there. So wouldn't it make sense that we treasure our today and make the most of it before it is gone as yesterday?
+
+Although it is easy to forget, I keep reminding myself of this fact as often as I can. It keeps me going coz it makes me strive to make today my happiest day. Over a period of time I have learnt to try and derive happiness from the smallest things in life. These things seem inconsequential but they actually add to the final consequences of helping us become a happy person. It could be picking up a fragrant flower fallen from the tree outside our apartment, or capturing that parrot pirouetting on our terrace on my phone. I do little things that make me happy. It took me a while to get into this mode after I realised that all the things that I cribbed about in the past were not what made my yesterday happy. It was really the small things that I enjoyed that I remembered fondly later on. Once you get a hang of this practice of learning to appreciate little things in life it goes a long way in finding eternal happiness. This kind of joy does not depend on any person or situation to make you happy. All it needs is to open up one's senses and align it with how you glean happiness from it. To each his own. While I find my share of bliss in nature, going by your likes, I'm sure music is one of the things that gives you immense joy. Revel in that joy. Find music in the mundane. Listen to the melody that raindrops create when they dance pitter-patter on the roof. Coo back to the bird perched on your window sill. Sing to yourself and feel happy that life blesses you with that pure happiness that music gives you.
+
+A big misconception about happiness is when one believes that if they make people around them happy, they will be happy. On the contrary, it is really the other way round. Only when you yourself are happy is when you are able to give happiness to others. The amusing part of how I realised this goes like this. A few years back I once googled the meaning of my name. It turned out to be 'the one who gives happiness.' 'Vinod' means happiness and the one who gives happiness is 'Vinodini.' That set me brooding on whether I was really living up to my name. I consciously tried to make people happy keeping my own needs aside and catering to theirs. Within a few days I realised that this actually made me grumpy at the end of the day coz I wasn't taking care of myself in the process. I realised the importance of keeping myself happy in order to give happiness to others. There's nothing selfish in doing things for yourself first if that means that you are able to give the best version of yourself to others by doing so. Remember the safety instructions given when you board a flight? They tell you that in case of an emergency, first help yourself before you try to help others. That holds true to other instances in life too besides emergencies. If you cater to your own needs first, you'll be in a better position to help others.
+
+The thing about happiness is that the more you give it, the more it multiplies. So well, feed yourself with little doses of joy and produce enough to share it with everyone around you. Have that last piece of cake without guilt, coz you deserve it. Keep smiling, my child. Hugs.
+
+Love Ma
+
+_My theme for this year's ['Blogging from A-Z Challenge,'](http://www.a-to-zchallenge.com/) is a set of 26 open 'Letters to my Son' from me that I will be writing throughout April. Read more about my theme [here.](http://ifsbutsandsetcs.com/2017/03/theme-reveal-atozchallenge-2017-letters-to-my-son/)_

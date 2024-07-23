@@ -1,0 +1,31 @@
+---
+title: "Across balconies~A cute kinda love story~"
+date: "2014-05-07"
+categories: 
+  - "fiction"
+coverImage: "tangytuesday.jpg"
+---
+
+[![](images/tangytuesday.jpg)](http://ifsbutsandsetcs.com/wp-content/uploads/2014/05/tangytuesday.jpg)
+
+This post was featured at [Tangy Tuesday Picks at blogadda!](http://blog.blogadda.com/2014/05/20/tangy-tuesday-picks-good-indian-blogs-to-read-2)
+
+He paced aimlessly to and fro in his balcony. He had a gut feeling, that she was in town.He could sense her presence. For the nth time his eyes darted across the block at the balcony just opposite. The door to her room was shut as always ever since the time she had moved out of town to pursue her dreams. The only occasion the door now opened was the rare weekend that she would visit.
+
+<table class="tr-caption-container" style="float: left; margin-right: 1em; text-align: left;" cellspacing="0" cellpadding="0"><tbody><tr><td style="text-align: center;"><a style="clear: left; margin-bottom: 1em; margin-left: auto; margin-right: auto;" href="http://ifsbutsandsetcs.com/wp-content/uploads/2014/05/tumblr_ltpapcx1rv1qa6j0eo1_500.jpg"><img src="images/tumblr_ltpapcx1rv1qa6j0eo1_500.jpg" width="266" height="400" border="0"></a></td></tr><tr><td class="tr-caption" style="text-align: center;">Source: Google Images</td></tr></tbody></table>
+
+He had been admiring her since her early days of adolescence. He still remembered the first time they crossed each other in the landscaped gardens of the building premises they lived in. Their eyes had met. She did not stop. But he kept his ear to the ground. She had let out a girlie giggle, and he heard her whisper into her friend's ears "Cute, isn't he?!" as she walked away without looking back at him.
+
+"Cute?!......she called me cute!!" he exclaimed to himself "Yessss!" he jerked his elbow backwards in a moment of victory! He was on top of the world! But there was no way he could have approached her then, coz his mum was walking alongside. Mum was a stern lady who would not mingle with strangers easily and thus she would never see eye to eye about what he felt for her then. So he decided he would wait for the right opportunity to express his love to the object of his affection.
+
+Days turned into months and months into years, he kept dragging his feet and never found that right opportunity to meet her and let her know how he felt for her. Being strong disciplinarians, his parents never let him go out alone. Every morning when she stepped out in the balcony with her daily cup of coffee, he would gaze at her dreamily, letting out a sigh which blew the fringe of hair off his forehead stylishly. She would softly smile back at him brushing away a stray of unruly strands off her lovely face as she sipped her coffee. But then conveying a message that was so close to his heart, was not something he could yell across the balcony. Suddenly, one fine day, he noticed the door to her room in her balcony shut tight. It did not open for days after that. He missed the daily morning ritual of exchanging love lorn gazes with her. He panicked! Was she okay? Where was she?
+
+A few days later, as he strolled in the building park with his mum, he noticed her friends pass by. He strained to overhear what they were discussing. And that's when he got to know that she had moved out of town to pursue some dream of hers.He got a real kick in his teeth! "How could it be? What else could be her dream other than him?" he wondered. "Did she not make it more than obvious that she adored him...then how could she just leave him in a lurch without letting him know about her plans?" He went into a gloom of severe depression after this episode. He refused to eat, stopped responding to people and spent hours in the balcony waiting for her door to open. His parents wondered what was wrong with him and tried to ease him out of his shell, but gave up on their efforts after a few days when they did not see any change in his demeanor.
+
+So today after ages, something told him, she was somewhere close. Ah...the wonders of being in love! People do get telepathic in this state. Or was it that he was watching too many romantic flicks on the idiot box with mum? "No" he shook his head. He was sure he would see her today. Just as he stopped pacing, suddenly the door opposite swung open. Yes, it was her.He was ecstatic, euphoric, all at once! His heart started playing a wild kind of orchestra! And there she was, prettier than ever. Quite unlike the way she normally dressed, today she was draped in a red sari, the kind of attire he had always seen his mum in. She had a streak of vermilion on her forehead and string of black beads around her neck."Why was she dressed like this? Only married women like mum dress like this.Not girls." he wondered thick with curiosity.His eyes searched for hers.But she seemed engrossed elsewhere.The object of her attention stood by her side, wrapping her in his arms.The loving gaze that she used to bestow him all these years was now on this strange man who stood hugging her in the balcony. From the balcony opposite, her loyal lover of so many years cringed at the sight with moist eyes. He just could not bear to see the object of his affection possessed by someone else. He had assumed she was hers. But alas! She had chosen someone else over him. His heart shattered into a million pieces.
+
+It was his fault really. He sighed and blew the fringe off his forehead and turned away from the grilled balcony.Shaking his droopy ears with his furry tail tucked under his dejected self. After all, he was just a dog. A cute Lhasa Apso....the kinds that girls 'ooh-aah-ed' over and lost their heart to. But he was canine and not a human like her to command the kind of love he expected from her. Nothing had prepared him for the egg on his face when this realization dawned on him. He felt cheated, let down, embarrassed and stupid-all, in that order. Guess it was just puppy love.
+
+This story was written for: [Wednesday Prompt at Write Tribe.](http://writetribe.com/body-part-idioms/)
+
+                                                                                [![](images/wt1.jpg)](http://ifsbutsandsetcs.com/wp-content/uploads/2014/05/wt1.jpg)

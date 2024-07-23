@@ -1,0 +1,16 @@
+---
+title: "Lost and Found in my Dreams"
+date: "2017-01-12"
+categories: 
+  - "musings"
+  - "random"
+coverImage: "dreamcatcher-1082228_640.jpg"
+---
+
+As a child I used to get weird dreams. One such recurrent dream was that the five-year old me was stranded on an unknown railway station en route to our native place in the south. I would dream about the train chugging away from the station taking my blissfully ignorant parents away from me who were unaware of me being left back on the railway platform, while I would watch on, horrified and helpless. The next scene (yes, I dream in sequences, scenes by scene!) shows me some days later, begging on the station, filthy and in tattered clothes, as my parents spot me on the same station they left me behind on their way back after their vacations. Funny as this might sound, but this dream haunted me on every train journey for many years to come. I wonder what triggered it.
+
+My mum tells me that once when we were on one such journey we had halted for a few hours at a station's retiring room, while my mum was inside the retiring room, my dad had taken me for a stroll on the railway platform. While we were at it he happened to bump into an old colleague of his and started chatting with him. So engrossed was he in the conversation that he did not notice me, his toddler, playfully drifting far away from him in the crowd. Luckily, a kind ticket collector found me, carried me and went around asking the bystanders whose kid I was, till my dad spotted me and claimed me as his lost brat!
+
+Yet another instance was during one of those journeys when my brother, who was then about seven years old, had got down on the station from the train where it halted, along with dad to buy some refreshments. It so happened that there was a cart with toys passing by the place where my brother and dad were standing. So fascinated was my brother by those toys that he did not notice that dad had climbed back into the train while he was busy admiring those toys! It was only when the train started moving did he realise that he was about to be stranded. He screamed out to my dad who was coolly standing propped by the door of the coach forgetting that he had left his panic-stricken young boy on the station! Fortunately, dad noticed him in time to pull the alarmed kid back on the train. Phew! Talk about absent-minded dads, mine would bag a trophy for it!
+
+So well, that explains parts of the weird dream I used to get on my train journeys. Isn't it surprising how the seemingly small events that we experience, especially in our childhood, find their way into our dreams and subconscious minds, sometimes staying with us for eons? I still giggle at the memory of me begging on the railway station in my dreams! This happens to be my favorite dream so far, at least this is one dream I have a vivid memory of. There are some interesting ones that I've forgotten the moment I've opened my eyes. I'm sure most of us have at least one favorite dream that we remember clearly. Not the kind of dream that you see with eyes open, but the one that translates everyday instances into dreams that you see with your eyes closed. I'd love to know if you have had any such dream/s that you love recollecting. Do share your experience in the comments below.
